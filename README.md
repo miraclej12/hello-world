@@ -1,3 +1,4 @@
 # hello-world
-Introduction this to the world
+Introduction you to my world
+Am yana your guy
 Just be who you are
